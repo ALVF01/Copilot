@@ -1,4 +1,4 @@
-# Copilot - registro de interações
+# Registro de interações
 https://www.linkedin.com/in/alvf01/
 
 2025-10-16
